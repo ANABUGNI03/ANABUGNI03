@@ -6,7 +6,7 @@ sou **aluna** da escola Leticia.
 
 -Gosto muito de sair.
 
--GOSTO MUITOD DE ESCUTAR MUSICA.
+-GOSTO MUITO DE ESCUTAR MUSICA.
 
 -Amo comer açai.
 
